@@ -1,2 +1,2 @@
 # tugasAkhir
-for my fucking future
+for future
